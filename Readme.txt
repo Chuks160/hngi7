@@ -1,7 +1,3 @@
 hngi7 internship# Hng-Internship
-# Hng-Internship
-# Hng-Internship
-# Hng-Internship
-# Hng-Internship
-# Hng-Internship
-# Hng-Internship
+i have been working on this
+thanks
